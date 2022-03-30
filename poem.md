@@ -52,3 +52,8 @@ Source: Musixmatch
 Songwriters: Justin Bieber / Benjamin Levin / Edward Sheeran / Scott Braun
 Love Yourself lyrics © Universal Music Corp., Bieber Time Publishing, Hipgnosis Songs Fund Limited
  
+ tmro baau amrishpuri dekhauxa rey saan
+ tmro baulai samjhaidinu ma hu salmaan khan
+ baakey bardiya 
+ dil churaakey oi bainiu 
+ ye kya kardiya
