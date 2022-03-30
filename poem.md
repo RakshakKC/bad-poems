@@ -50,5 +50,10 @@ And if you think that I'm still holdin' on to somethin'
 You should go and love yourself
 Source: Musixmatch
 Songwriters: Justin Bieber / Benjamin Levin / Edward Sheeran / Scott Braun
-Love Yourself lyrics © Universal Music Corp., Bieber Time Publishing, Hipgnosis Songs Fund Limited
+Love Yourself lyrics © Universal Music Corp., Bieber Time Publishing, Hipgnosis Songs Fund Lim 
+
+tmro baau a,mrishpuri dekhauxa rey saan
+ t ro baulai samjhai dinuy ma hu salman khan 
+ arey baanke bardita
+ dil churakey oi bainiuu ye kya kardiya
  
